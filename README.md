@@ -1,1 +1,1 @@
-![](https://commons.wikimedia.org/wiki/File:Cylinder_flow.gif)
+![](https://upload.wikimedia.org/wikipedia/commons/b/be/Cylinder_flow.gif)
